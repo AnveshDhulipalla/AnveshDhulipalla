@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AnveshDhulipalla
 - 👀 I’m interested in reading, working out, cooking and hiking
 - 🌱 I’m currently learning about Aerodynamics and some stuff for personal development
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on starting a business with someone
 - 📫 How to reach me - Email: adhulipa@iastate.edu
 
 <!---
